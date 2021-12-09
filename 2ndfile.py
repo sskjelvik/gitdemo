@@ -1,5 +1,7 @@
 My name is Synne
+Ekiekieki
+
+
+jou
 
 hello
-
-new line here
